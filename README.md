@@ -139,4 +139,7 @@ So, whether you're dreaming of your own startup, aiming for a tech job, or simpl
 👉 Welcome to [MK_Coder.com](https://mkcoder.com/) — where code meets creativity, and learners become leaders.
 Let’s build the web together, beautifully and boldly. 🌍💻
 
-[Subscribe Our channel](https://www.youtube.com/@Seekho_Code)
+
+## 🔗 Connect With Me
+
+[**LinkedIn**](https://www.linkedin.com/in/mohit-hodkhasiya-396119343)               [**YouTube**](https://www.youtube.com/@MohitCws)  
